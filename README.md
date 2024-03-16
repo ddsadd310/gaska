@@ -1,2 +1,2 @@
 # gaska
-gaska HYJ
+ЖЕСКИЙ ОГУЗОК
